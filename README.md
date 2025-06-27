@@ -5,9 +5,8 @@
 ---
 
 <p align="center">
- <a href="">
-  <img src="" alt="" width="700"/>
-</a>
+ <a href="https://topchikseo.com/click.php?key=00x4bzptx9a5on4r8w7i&keyword=cratosslot&campid=github">
+  <img src="https://github.com/ulyahastuti226/cratosslot/blob/main/9jwoaneef63btav603jaysny3oq1ca90.jpg" alt="Cratosslot" width="700"/>
 </p>
 
 ---
